@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋Hi i,m Mohamed Eid<br>- 🔭 I’m Study in Faculty of Alex Buniess<br>- 🌱 I’m interested with Front-end developement<br>- 💬 you can contact me at : eidh17267@icloud.com<br><br>
+👋Hi i,m Mohamed Eid<br>- 🔭 I’m Study in Faculty of Alex business<br>- 🌱 I’m interested with Front-end developement<br>- 💬 you can contact me at : eidh17267@icloud.com<br><br>
 
 
 ## 🌐 Socials:
