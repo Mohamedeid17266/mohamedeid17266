@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on [zad](https://zad.gg)
 
-- 🤝 I’m looking for help with [zadedu](https://zadedu.co/)
+- 🤝 I’m  help with [zadedu](https://zadedu.co/)
 
 - 📫 How to reach me **eidh17267@gmail.com**
 
